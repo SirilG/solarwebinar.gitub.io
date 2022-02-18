@@ -1,1 +1,1 @@
-# universalwebinar.github.io
+# solarwebinar.gitub.io
